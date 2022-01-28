@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @qqOLI (RU)
+- 💡 I’m interested in projector activity...(and other)
+- 📖 I’m programming languages: Python and C#(Unity)
+- 📫 How to reach me :
+- Twitter: @qq_Oli
